@@ -24,7 +24,7 @@ permalink: /ethics/ten-precepts/
 The first 7 precepts are moral precepts and they are the most important precepts. There are 3 more precepts which are not related to morality. You need to at least follow the first 7 precepts to be a Nūtana Dhārma follower. But following all 10 of them is strongly advised.
 
 1. I will consider that **all other human beings** that I do not already have close relationships with (irrespective of their race, religion, caste, region, creed, ethnicity, language, sex, and family status) as having **equal moral worth**.
-2. I will never harm or support the harm of another sentient being for the **mere sake of pleasure** and I understand that this implies that I need to be a **vegan**.
+2. I will never harm or support the harm of another sentient being for the **mere sake of pleasure** and I understand that this implies that I need to be a **vegan** .
 3. I will **never own** another sentient being.
 4. I will never **brain wash** my children or my students by teaching uncertain things (like **religion**), that can neither be empirically verified nor can be deduced purely from logic and mathematics, as certainly true.
 5. I will try as much as I can to not unnecessarily waste important things like money, food etc by indulging in **luxurious activities** and instead once I have more than enough for my family I will give these things to the **poor and needy people**.
@@ -62,10 +62,54 @@ Example cases:
 
 4) A small kid's parents died in an accident. It asked you where they are and when will they come back. Should you lie that they are in another city and will come back so that it won't feel sad? No. You should better tell it the truth that they no longer exist and it can never meet them. If you lie and it believed that for some time then it will be even more sad when it finally understands the truth.
 
+
+   
+
 ## 7
 
 ## 8
 
 ## 9
 
-## 10
+
+
+## 10  
+
+Sensual pleasure involve following : 
+
+1 sexual pleasure : This involves 
+ a ) mastubation 
+ b ) watching porn 
+ c ) hooking up frequently with any one 
+ d ) taking services of a sex worker 
+ e ) use of sex toys 
+ f ) reading or consuming any type of erotic media ( stories , magzine , images, videos etc )
+ If you can or want to completely get ride of sexual cravings and go further you can adopt celebacy and vow to never indulge in relationship , dating and marriage and love and companionship are just excuses and love and companionship can be received by friends , parents , siblings or with circles of co-activists who are aiming for the common cause .This may be extreme to many and so is suggested to be optional and only for those who want to be invincible against sexual cravings and sexual manipulation .  
+ g )  Ogling at person of opposite sex for heterosexual and at person of same sex for homosexuals . leering
+
+2 slave of taste buds or overeating : This involves 
+
+   a ) binge eating 
+   b ) eat innocent creatures just for taste buds .
+   c ) alcohol consumption 
+   d ) smoking or vapping 
+   e ) tobacco consumption 
+   f ) eating fast food and processed food  etc 
+   g ) sugary food cunsumption like cakes , Chocolate , toffees etc . They are culprit of causing obesity,diabetes , cholestrol , heart diseases 
+   h ) avoid frying while cooking as it also have harmful effects  
+   
+3 visual pleasure : This involves 
+
+ a ) smart phone addiction 
+ b ) Binging through TV
+ c ) Voyeurism
+ d ) Ogling 
+ e ) video gaming
+
+4 auditory pleasure : This involves
+
+ a ) loud music 
+ b ) erotic sounds 
+
+
+
